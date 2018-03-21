@@ -1,6 +1,8 @@
 # Jean-Baptiste-VEESLER-citations-steve-jobs
 
-Citation 1 : Votre temps est limité, ne le gâchez pas en menant une existence qui n'est pas la vôtre. Sortez des dogmes qui vous gardent prisonnier et qui vous obligent à obéir à la pensée d'autrui. Ne laissez pas le brouhaha extérieur étouffer votre voix intérieure. Osez suivre votre coeur et votre intuition. L'un et l'autre savent ce que vous voulez réellement devenir. Tout le reste est secondaire.
+Citation 1 : Le temps
+
+"Votre temps est limité, ne le gâchez pas en menant une existence qui n'est pas la vôtre. Sortez des dogmes qui vous gardent prisonnier et qui vous obligent à obéir à la pensée d'autrui. Ne laissez pas le brouhaha extérieur étouffer votre voix intérieure. Osez suivre votre coeur et votre intuition. L'un et l'autre savent ce que vous voulez réellement devenir. Tout le reste est secondaire."
 
 Citation 2 : Être l'homme le plus riche du cimétière ne m'intéresse pas. Aller me coucher le soir en me disant que j'ai fait des choses extraordinairesaujourd'hui, voilà ce qui compte.
 
